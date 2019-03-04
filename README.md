@@ -1,2 +1,2 @@
 # innovation
-Inasight Innovation
+Inawisdom Innovation
